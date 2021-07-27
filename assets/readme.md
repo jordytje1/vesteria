@@ -1,1 +1,0 @@
-Vesteria Image & Other Assets
